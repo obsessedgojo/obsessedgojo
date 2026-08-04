@@ -1,5 +1,5 @@
 <div align="center">
-    <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul215_20260804205455.png">
+    <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul215_20260804210100.png">
 
 &ensp;
 
