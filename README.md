@@ -5,9 +5,11 @@
 
 &ensp;
 
-<div align="center">
-    <img src="https://komarev.com/ghpvc/?username=obsessedgojo&color=431f5d&label=chudlings" alt="Profile Views">
-</div>
+<p align="center">
+  <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/tumblr_3443d282e1bbf2115021445057754968_5f142c02_75.gif" width="30" />
+  <img src="https://komarev.com/ghpvc/?username=obsessedgojo&color=431f5d&label=chudlings" width=100" />
+  <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/tumblr_c75b588f801467c3bb4aeab6aec6f903_1afd4c87_75.gif" width="30" />
+</p>
 
 
 <div align="center">
