@@ -10,10 +10,14 @@
 
 
 <div align="center">
-    <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul215_20260804175007.png" width="430">
+    <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul220_20260810200906.png" width="430">
+
+THANK YOU SOKUCHHH MIKA
 
 &ensp;
 
 &ensp;
 
 big MASSIVE HUGE VIRAL DUBAI DOT CAKE labubu pistachio strawberry wip can't code at ALLLL
+
+remaking the icons or whatever also
