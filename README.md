@@ -1,6 +1,3 @@
-<div align="center">
-    <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul215_20260804210100.png">
-
 &ensp;
 
 &ensp;
@@ -19,8 +16,4 @@
 
 &ensp;
 
-wip can't code at ALL
-
-<div align="right">
-    <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul215_20260804211231.png" width="200">
-
+big MASSIVE HUGE VIRAL DUBAI DOT CAKE labubu pistachio strawberry wip can't code at ALLLL
