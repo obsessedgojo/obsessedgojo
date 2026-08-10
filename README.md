@@ -8,11 +8,10 @@
   <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/tumblr_c75b588f801467c3bb4aeab6aec6f903_1afd4c87_75.gif" width="30" />
 </p>
 
+&ensp;
 
 <div align="center">
-    <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul220_20260810200906.png" width="430">
-
-THANK YOU SOKUCHHH MIKA
+    <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul221_20260810203210.png" width="600">
 
 &ensp;
 
