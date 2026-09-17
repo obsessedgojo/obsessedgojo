@@ -15,9 +15,7 @@
 
 &ensp;
 
-have u ever had the thought to just
-
-... 
+taking a break, been very stressed right now 
 
 &ensp;
 
