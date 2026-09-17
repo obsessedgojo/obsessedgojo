@@ -15,10 +15,15 @@
 
 &ensp;
 
+have u ever had the thought to just
+
+... 
+
 &ensp;
 
-big MASSIVE HUGE VIRAL DUBAI DOT CAKE labubu pistachio strawberry wip can't code at ALLLL
+&ensp;
 
-remaking the icons or whatever also
+&ensp;
 
-![](https://file.garden/aZ_gi8BVVxQ1YK9c/Screenshot_2026-08-29-17-34-18-08_572064f74bd5f9fa804b05334aa4f912.jpg) 
+<p align="center">
+  <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Screenshot_2026-08-29-17-34-18-08_572064f74bd5f9fa804b05334aa4f912.jpg" width="400">
