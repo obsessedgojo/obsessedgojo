@@ -15,7 +15,7 @@
 
 &ensp;
 
-guys wish me luck!!!! having competition in sept 26th
+guys wish me luck!!!! having competition in september 27th
 
 &ensp;
 
