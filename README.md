@@ -15,7 +15,7 @@
 
 &ensp;
 
-harvey, nobody knows what i see
+guys wish me luck!!!! having competition in sept 26th
 
 &ensp;
 
