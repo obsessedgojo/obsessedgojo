@@ -28,7 +28,7 @@ $${\color{lightblue}\text{⬆️me and THE gang that i love dearly⬆️}}$$
 
 &ensp;
 
-# me and my bf  's FAVORITE sport that we do
+# me and my bf  's FAVORITE sport (or whateva)  that we do
 <p align="center">
   <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/Tak%20berjudul259_20261002210612.png" width="300">
 
