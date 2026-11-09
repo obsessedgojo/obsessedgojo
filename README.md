@@ -16,4 +16,4 @@ $${\color{lightblue}\text{⬆️me and THE gang that i love dearly⬆️}}$$
 
 it's my birthday today
 
-November 19th
+November 9th
