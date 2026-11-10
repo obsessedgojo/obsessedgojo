@@ -13,7 +13,3 @@
     <img src="https://file.garden/aZ_gi8BVVxQ1YK9c/8d74c0d6a3d7443ea835bce6814ca09c%20(1).jpg" width="430">
 
 $${\color{lightblue}\text{⬆️me and THE gang that i love dearly⬆️}}$$
-
-it's my birthday today
-
-November 9th
